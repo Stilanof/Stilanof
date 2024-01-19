@@ -16,5 +16,5 @@ Outside the logistics realm, I find joy in:
 ## 📫 Let's Connect
 
 If you're interested in discussing supply chain strategies, collaborating on projects, or just chatting about tech, feel free to reach out!
-- 💼 LinkedIn: [Your LinkedIn Profile]([https://www.linkedin.com/in/your-linkedin/](https://www.linkedin.com/in/susana-tilano-/))
+- 💼 LinkedIn:([https://www.linkedin.com/in/your-linkedin/](https://www.linkedin.com/in/susana-tilano-/))
 
